@@ -1,1 +1,0 @@
-# ghmcdowell.github.io
